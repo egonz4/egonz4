@@ -31,6 +31,9 @@ Tengo 25 años y soy un **artista puertorriqueño** que además de interpretar, 
 ### También subo un video del dia a dia de lo que hago ese mes. Aquí abajo están los episodios:
 
 [La Ré Ep.1 (Enero 2025)](https://www.youtube.com/watch?v=TyiZAvcL7aI)
+
 [La Ré Ep.2 (Febrero 2025)](https://www.youtube.com/watch?v=CK_QC-glVsM)
+
 [La Ré Ep.3 (Marzo 2025)](https://www.youtube.com/watch?v=tV48bYUI3jA)
+
 [La Ré Ep.4 (Abril 2025)](https://www.youtube.com/watch?v=qa3_le4K6gE)
