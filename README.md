@@ -4,7 +4,7 @@ Tengo 25 años y soy un **artista puertorriqueño** que además de interpretar, 
 
 ### Mi último proyecto se llama **"LUV ALLERGIC RELOADED"** y aquí podemos ver la portada y el tracklist:
 
-<a href='https://youtu.be/XiTE_o7mHgI' target='_blank'>
+<a href='https://open.spotify.com/album/4LwJs7StXzrwsQTAuGhu6G' target='_blank'>
   <img width='30%' src='https://i.ibb.co/yFFjGzD5/Captura-de-pantalla-2025-05-28-104306.png' alt='LUV ALLERGIC RELOADED' />
 </a>
 
@@ -25,4 +25,4 @@ Tengo 25 años y soy un **artista puertorriqueño** que además de interpretar, 
 | DEPORTIVO | Anubiis |
 | SUERTE BB |  |
 
-[Escúchalo aquí](https://open.spotify.com/album/4LwJs7StXzrwsQTAuGhu6G)
+[Mi perfil de Spotify](https://open.spotify.com/intl-es/artist/5bVgn8ImAnQDIB1NjxfSvb)
